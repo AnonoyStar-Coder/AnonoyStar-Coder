@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnonoyStar-Coder
-- 👀 I’m interested in Coding and a heck ton of Minecraft and BrawlHAlla
+- 👀 I’m interested in Coding and a heck ton of Minecraft and BrawlHalla
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on anything as long as it is basic.... for now :)
 - 📫 How to reach me: anonystargamerz@gmail.com
